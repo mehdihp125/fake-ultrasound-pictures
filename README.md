@@ -21,3 +21,14 @@ Create fake ultrasound with AI easily and share it with your friends. Its Free.
 3 - Click generate fake ultrasound .
 
 Done .
+
+
+
+
+![1](https://github.com/mehdihp125/fake-ultrasound/assets/69718066/762e2dfa-812d-4a47-9792-efe171f70284)
+
+
+
+
+--------------------------------------------------------
+
