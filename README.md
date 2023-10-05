@@ -34,7 +34,10 @@ Done .
 
 ### 📌Note :
 Fake pregnancy ultrasound images are used only to joke. Using a fake picture as a real one can effects on your relationships. Use these images just for fun.
+
 Fake ultrasound pictures are created with your name and have real details. These photos are created using artificial intelligence and it is hard to tell if they are fake.
+
 Using someone else's name or information to create a fake pregnancy ultrasound is considered identity theft. Using other people's personal information without their consent is fraud and can have serious legal consequences. So don't use someone else's identity without their permission.
+
 Avoid sharing people's personal medical information without their consent, including fake pregnancy ultrasounds.
 
