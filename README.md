@@ -14,7 +14,8 @@ Create fake ultrasound with AI easily and share it with your friends. Its Free.
 
 📌How To Use :
 
-1 - Go to : https://pikiguide.com/fake-twin-ultrasound/
+1 - Go to : [https://pikiguide.com/fake-twin-ultrasound/](https://dlgram.com/cPB82JqR
+)
 
 2 - Fill the form.
 
